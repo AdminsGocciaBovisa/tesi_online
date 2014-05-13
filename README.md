@@ -13,9 +13,12 @@ Partendo da questi presupposti abbiamo iniziato una simulazione del processo sce
 Assieme alla Comitato di quartiere abbiamo avviato la progettazione di un un evento che coniuga l’informazione di difesa dell’area unita all’arricchimento di conoscenza culturale della zona.
 
 
-Gli elaborati della tesi sono scaricabili attraverso questo link:
-https://www.dropbox.com/sh/nspf2w9xmtvw55o/AADAM34bYOc6dxnuWXBJkYO9a
+Gli elaborati della tesi sono scaricabili attraverso i seguenti link:
+- Per la cartella completa
+https://www.dropbox.com/sh/nspf2w9xmtvw55o/AADAM34bYOc6dxnuWXBJkYO9a 
 
 la cartella contiene:
-- Book e presentazione
-- Tavole del progetto, Prospetti e foto del plastico
+- Ricerca teorica (Book e presentazione)
+ https://www.dropbox.com/sh/desqxig6h76g21c/AADSC0kf29TJlhjemGJN24ZDa
+- Progetto - I confini permeabili della Bovisa (Tavole tecniche, Prospettive e foto del plastico)
+ https://www.dropbox.com/sh/5fmlqj0wt1wapkr/AAA9SRJuZlG9xZwuzVLJQf_da
