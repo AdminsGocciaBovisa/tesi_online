@@ -16,12 +16,12 @@ Assieme alla Comitato di quartiere abbiamo avviato la progettazione di un un eve
 Gli elaborati della tesi sono scaricabili attraverso i seguenti link:
 - Per la cartella completa
 
-https://www.dropbox.com/sh/f7dj3waudubo2jr/AADln2KZlZNP-_K-jZu4i09Za?dl=0
+https://www.dropbox.com/sh/88brljaid3hg9k6/AACzfCHyhtw_gpXfGArMNTrca?dl=0
 
 la cartella contiene:
 - Ricerca teorica (Book e presentazione)
 
- https://www.dropbox.com/sh/desqxig6h76g21c/AADSC0kf29TJlhjemGJN24ZDa
+https://www.dropbox.com/sh/f7dj3waudubo2jr/AADln2KZlZNP-_K-jZu4i09Za?dl=0
 - Progetto - I confini permeabili della Bovisa (Tavole tecniche, Prospettive e foto del plastico)
 
 https://www.dropbox.com/sh/pybgvy9hgobwveo/AAB_lwvCGvXNqsIPRL87CF6Oa?dl=0
